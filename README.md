@@ -1,4 +1,4 @@
-# EA-Strategy-Case-Study-Change-Management
+# EA-Strategy-Case-Study-Change-Management asdkjaskjdkasjdkasjd
 
 Applied strategic management and change frameworks to assess challenges and opportunities facing Electronic Arts (EA).  
 
